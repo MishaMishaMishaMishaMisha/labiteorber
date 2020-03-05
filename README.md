@@ -1,2 +1,2 @@
 # labiteorber
-eto ya
+Sklyarov M.
